@@ -2,6 +2,9 @@
 ![image](https://github.com/Raezoxc/-Historical-Data-Analysis-and-Strategic-Growth-Plan-for-Lightspeed-Networks/assets/153198226/3c0309b9-89e6-4b10-8a7e-bfa63f18ed65)
 
 
+![image](https://github.com/Raezoxc/-Historical-Data-Analysis-and-Strategic-Growth-Plan-for-Lightspeed-Networks/assets/153198226/ffe2c8e8-2f82-4a84-a22e-964f48e80180)
+
+
 # Market Share Analysis and Growth Strategy for Lightspeed Networks
 
 **Key Insights:**
